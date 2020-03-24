@@ -6,3 +6,8 @@ En la eterna lucha del bien contra el mal, su única ayuda será Marie Parks, un
 
 
 ![hija del apocalipsis](https://user-images.githubusercontent.com/62618755/77479719-f430d200-6de5-11ea-9f14-39ddaef8738f.jpg)
+
+Link para comprarlo 
+
+https://www.amazon.com/hija-del-Apocalipsis-Spanish-ebook/dp/B0062XEADM
+
