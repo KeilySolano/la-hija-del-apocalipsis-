@@ -4,3 +4,7 @@ En Nueva Orleans, Holly, una niña de once años perdida entre una multitud de e
 
 En la eterna lucha del bien contra el mal, su única ayuda será Marie Parks, una mujer impulsiva y cínica, pero también una de las mejores agentes del FBI. Una investigadora con un don especial: la capacidad de introducirse en la mente de las personas, ya sean víctimas o asesinos. A partir de ahora, ambas serán la única esperanza de la humanidad...
 ![hija del apocalipsis](https://user-images.githubusercontent.com/62618755/77479719-f430d200-6de5-11ea-9f14-39ddaef8738f.jpg)
+
+Link para comprarlo 
+
+https://www.amazon.com/hija-del-Apocalipsis-Spanish-ebook/dp/B0062XEADM
